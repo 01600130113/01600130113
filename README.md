@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Araft
+- 👋 Hi, I’m @Arafat
 - 👀 I’m interested in ... Hacking 
 - 🌱 I’m currently learning ... English 
 - 💞️ I’m looking to collaborate on ...Ashu
